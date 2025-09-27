@@ -1,2 +1,2 @@
 # Readme
-Free life,freedom software
+Freedom life,freedom software
